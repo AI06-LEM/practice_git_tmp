@@ -10,6 +10,7 @@
 - Water bottle
 - Notebook
 - Pencil
+- Camera (optional)
 
 ## Rules
 - Stay with your group
