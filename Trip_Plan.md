@@ -1,0 +1,17 @@
+# LITe Museum Trip: Plan
+
+## Schedule
+- Meet at 09:00 at school entrance area
+- Bus to City Museum at 09:30
+- Lunch at 12:30 (pizza)
+- Return at 15:30
+
+## Packing List
+- Water bottle
+- Notebook
+- Pencil
+
+## Rules
+- Stay with your group
+- Be respectful
+- No food on the bus
