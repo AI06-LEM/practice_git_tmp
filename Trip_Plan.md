@@ -3,7 +3,7 @@
 ## Schedule
 - Meet at 09:00 at school entrance area
 - Bus to "Luxembourg Science Center" at 09:30
-- Lunch at 12:30 (pizza)
+- Lunch at 12:45 (pizza)
 - Return at 15:30
 
 ## Packing List
