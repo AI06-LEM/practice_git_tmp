@@ -2,7 +2,7 @@
 
 ## Schedule
 - Meet at 09:00 at school entrance area
-- Bus to City Museum at 09:30
+- Bus to "Luxembourg Science Center" at 09:30
 - Lunch at 12:30 (pizza)
 - Return at 15:30
 
